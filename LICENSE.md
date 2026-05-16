@@ -1,4 +1,4 @@
-
+Get the ultimate Hide.me client with Hide.me new Client: double-VPN & obfuscation. Featuring double-VPN and obfuscation, it's the best choice for secure and private internet
 
 
 
